@@ -24,20 +24,10 @@ Sir has always led the institution with **dedication, discipline, and vision**, 
 
 ![Principal Sir](https://drive.google.com/uc?export=view&id=1W6Tb_8CIgulA92Dx2UePvSRvialW228_)
 
----
 
-## 🎖️ Mr. Ravindra Garg (Chief Guest – Civil Engineer at Municipal Corporation ludhiana)
-
-We were honoured to have **Mr. Ravindra Garg**, an **Civil Engineer at Municipal corp ludhiana**, as the **Chief Guest** for the day. Though it was his **first time speaking on stage**, he gave his **100% effort** and delivered a speech that was both **sincere and heartfelt**.
-
-His words reflected **real-life experiences**, a sense of **humility**, and a deep understanding of the **engineering journey** — all of which truly resonated with the students.
-
-Mr. Garg’s presence reminded us that **growth starts when we step out of our comfort zones**. His courage and honesty served as a genuine inspiration for all budding engineers in the hall.
 
 ---
-## 💸 Singla Sir 
-I completely forgot his name therefore I used his  **surname "Singla"**, He  has his working profession in **financae sector**, He tell us about that how we can solve our finicial problem And apply for loan with 0% interest and return after five years. Personlay i like their speech , the way He told us about loans or etc. is **awosome and greatful**.
-##👨‍🎓College Alumini
+## 👨‍🎓 College Alumini
 
 Ther is many college students who passed their graduation from GNDEC LUDHIANA and have placed in top tech. companies. 
 one of them are Sangam Arora and Arshdeep Singh. They both are toppers in cse from freshers to Final  year. They motivated us for our future .
